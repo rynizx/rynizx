@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ranvirsi1
 - 👀 I’m interested in coding, having fun :D
-- 🌱 I’m currently learning just school
+- 🌱 I’m currently learning 7th grade 
 - 💞️ I’m looking to collaborate on i dont know
 - 🍪 i also like cookies! :D
 - my discord is The_overwor126#5486
