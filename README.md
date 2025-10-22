@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on fort.ind a website :P<br><br>🌱 I’m currently learning HTML, C++, CSS<br><br>📃 my silly stupid blog :D https://fort1ndblog.wordpress.com/<br><br>😄 Pronouns he/him<br><br>📫 How to reach me soomaln02@fort1nd.com<br><br>⚡ Fun fact "if you turn off the power outlet, it does the same thing when you turn off your computer
+🔭 I’m currently working on fort.ind a website :P<br><br>🌱 I’m currently learning HTML, C++, CSS<br><br>📃 my silly stupid blog :D https://fort1ndblog.wordpress.com/<br><br>😄 Pronouns she/niko<br><br>📫 How to reach me soomaln02@fort1nd.com<br><br>⚡ Fun fact "if you turn off the power outlet, it does the same thing when you turn off your computer
 
 
 ## 🌐 im everywhere:
